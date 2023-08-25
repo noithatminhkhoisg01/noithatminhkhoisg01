@@ -1,16 +1,17 @@
-### Hi there 👋
+### Nội thất Minh Khôi
 
-<!--
-**noithatminhkhoisg01/noithatminhkhoisg01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nội thất Minh Khôi chuyên thiết kế thi công, bán lẻ nội thất đồ gỗ cao cấp chất lượng với giá tốt nhất, từ nội thất phòng khách như bàn ghế phòng khách, kệ tivi, tủ rượu, tủ giày, nội thất phòng ngủ như giường ngủ, tủ quần áo, bàn trang điểm...đến nội thất phòng thờ đẹp chất lượng với đa dạng mẫu mã.
 
-Here are some ideas to get you started:
+- Địa chỉ: 465 Lê Trọng Tấn, Phường Sơn Kỳ, Quận Tân Phú, TP.HCM
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0338.444.999 - 09.3333.7788
+
+- Email: noithatminhkhoi@gmail.com
+
+- Website: https://noithatminhkhoi.com/
+
+https://www.facebook.com/noithatminhkhoi465
+
+https://twitter.com/noithatmksg
+
+https://www.tiktok.com/@noithatminhkhoisg?lang=vi-VN
